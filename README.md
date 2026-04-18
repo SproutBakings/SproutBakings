@@ -25,4 +25,5 @@
 
 𝒜𝓃𝓎𝓌𝒶𝓎 𝓉𝒽𝒶𝓉 𝓌𝒶𝓈 𝒶𝓁𝓁 𝒶𝒷ℴ𝓊𝓉 𝓂ℯ𝒽. ℬ𝓎ℯ 𝒮𝓊𝑔𝒶𝓇 🍓
 # ƒι¢ткιη/ѕєє∂ℓу
-⌗ ♡ ᴇɴᴅ ᴏғ ʙɪᴏ! ୨ৎ
+
+![Trinket](https://github.com/SproutBakings/SproutBakings/blob/c05c4bbc515c2b6739719c65e7acf90c3d22b6f9/IMG_2767.jpeg)
