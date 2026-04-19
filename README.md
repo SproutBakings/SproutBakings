@@ -1,4 +1,4 @@
-# ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔.                ![Sprout](https://github.com/SproutBakings/SproutBakings/blob/609ad175473cfba2561c1a33fb5b7323895f1e72/Sans%20titre%20207_20260419021331.jpeg)
+# ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔.           
 # 𝓗𝓮𝓵𝓵𝓸 𝓽𝓱𝓮𝓻𝓮 𝓼𝓾𝓰𝓪𝓻 !
 ![Bartners](https://github.com/SproutBakings/SproutBakings/blob/375169511464f40253327a0f3727773186887c28/IMG_2766.jpeg)
 -ɪᴍ ᴀ sᴘʀᴏᴜᴛ ғɪᴄᴛᴋɪɴ , ɪ sʜɪᴘ ʙᴇʀʀʏғᴜɴɴʏ ,ᴍᴏᴏɴʙᴇʀʀʏ ,ɪ ᴅᴏɴᴛ ʀᴇᴀʟʟʏ ᴍɪɴᴅ ᴏᴛʜᴇʀs sʜɪᴘ , 
