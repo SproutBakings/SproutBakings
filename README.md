@@ -25,5 +25,6 @@
 ![Sprout](https://github.com/SproutBakings/SproutBakings/blob/05fda1844a14f95a089c00d5c413461c047cbace/Sans%20titre%20207_20260419021331.jpeg)
 𝒜𝓃𝓎𝓌𝒶𝓎 𝓉𝒽𝒶𝓉 𝓌𝒶𝓈 𝒶𝓁𝓁 𝒶𝒷ℴ𝓊𝓉 𝓂ℯ𝒽. ℬ𝓎ℯ 𝒮𝓊𝑔𝒶𝓇 🍓
 
+![Sprout seedly](https://github.com/SproutBakings/SproutBakings/blob/2e325ae9fe80231b0ea4c853f9e2e1b29ec44740/Sans%20titre%20207_20260419023307.jpeg)
 #ƒι¢ткιη/ѕєє∂ℓу
 # ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
